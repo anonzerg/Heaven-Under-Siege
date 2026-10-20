@@ -6,9 +6,7 @@ A short story by **Mahdi Farrokhi**.
 
 > Before the stars were counted, there was a rebellion, and it was short.
 
-Long after the fall of the rebel angels and the banishment from Eden, humanity arrives at the gate of Heaven with an armada, armed with a gift it was never meant to have. On the wall, two angels must decide what they heard: a command, or a question.
-
-Themes: free will, the cost of knowledge, punishment, and what a creator owes the created.
+Themes: free will and punishment.
 
 ## Read
 
